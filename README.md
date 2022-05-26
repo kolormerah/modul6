@@ -1,1 +1,1 @@
-# modul6
+# Jurnal 6
